@@ -1,1 +1,1 @@
-# cableconnect.github.io
+# https://sincere32.github.io/cbn/
